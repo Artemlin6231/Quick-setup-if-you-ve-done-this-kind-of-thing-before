@@ -1,1 +1,1 @@
-# Quick-setup-if-you-ve-done-this-kind-of-thing-before
+# summer school biodata
